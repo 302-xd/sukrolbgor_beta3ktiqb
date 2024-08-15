@@ -1,1 +1,0 @@
-# sukrolbgor_beta3ktiqb
